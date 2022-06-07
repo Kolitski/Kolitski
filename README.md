@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Adrianinho
-- 👀 Eu estou interresado em
+- 👀 Eu estou interresado na Vivianezinha
 - 🌱 Eu atualmente estou aprendendo 
 - 💞️ Estou procurando colaborar em 
 - 📫 como chegar até mim
