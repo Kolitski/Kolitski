@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Adrianinho
-- 👀 Eu estou interresado na Vivianezinha
-- 🌱 Eu atualmente estou aprendendo 
+- 👀 Eu estou interresado na Vivianezinha <3
+- 🌱 Eu atualmente estou aprendendo GitHub com o Alura
 - 💞️ Estou procurando colaborar em 
 - 📫 como chegar até mim
 
